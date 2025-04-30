@@ -13,8 +13,7 @@ Discord: Rikkasdevelopment
 Gmail: Rikkasdevelopment@gmail.com
 
 **Required 'Ban appeal' format**
--Must send the player's username
--Must send evidence of player's behavior.
+You must send the username of the player and evidence.
 
 **What should i do, if the player's username contains curse words/slurs?**
 Send a screenshot of their behavior and make sure the username is also visible.
@@ -24,4 +23,4 @@ Contact the developer under the usernames.
 
 **What to do, if i do not have those apps?**
 Look up 'Rich_bloxxy' on Roblox and send me a friend request & a message titled:
-"Membership request"
+'Membership request'
