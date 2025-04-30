@@ -8,8 +8,8 @@ My name is Rikka (also known as rich_bloxxy) and i assure you, that i am a teena
 Tiktok, discord, gmail.
 
 **What are the usernames?**
-Tiktok: Rich_bloxxy
-Discord: Rikkasdevelopment
+Tiktok: https://www.tiktok.com/@rich_bloxxy
+Discord: https://discord.com/users/1367197921295990875
 Gmail: Rikkasdevelopment@gmail.com
 
 **Required 'Ban appeal' format**
