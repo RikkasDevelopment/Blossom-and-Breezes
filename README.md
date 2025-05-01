@@ -22,5 +22,5 @@ Send a screenshot of their behavior and make sure the username is also visible.
 Contact the developer under the usernames.
 
 **What to do, if i do not have those apps?**
-Look up 'Rich_bloxxy' on Roblox and send me a friend request & a message titled:
-'Membership request'
+Locate the link below this text & once you click on it, send me a friend request and a message titled 'Membership Request'
+https://www.roblox.com/users/3441373452/profile
