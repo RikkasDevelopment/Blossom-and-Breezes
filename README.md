@@ -9,7 +9,7 @@ Tiktok, discord, gmail.
 
 **What are the usernames?**
 Tiktok: https://www.tiktok.com/@rich_bloxxy
-Discord: https://discord.com/users/1367197921295990875
+Discord: https://discord.com/users/1367361209040502926
 Gmail: Rikkasdevelopment@gmail.com
 
 **Required 'Ban appeal' format**
