@@ -7,10 +7,10 @@ My name is Rikka (also known as rich_bloxxy) and i assure you, that i am a teena
 **In which social medias may i interact with the developer?**
 Tiktok, discord, gmail.
 
-**What are the usernames?**
-Tiktok: https://www.tiktok.com/@rich_bloxxy
-Discord: https://discord.com/users/1367361209040502926
-Gmail: rikkasdevelopment@gmail.com
+**Usernames:**
+-Tiktok: https://www.tiktok.com/@rich_bloxxy
+-Discord: https://discord.com/users/1367361209040502926
+-Gmail: rikkasdevelopment@gmail.com
 
 **Required 'Ban appeal' format**
 You must send the username of the player and evidence.
