@@ -1,4 +1,4 @@
-# Blossom-and-Breezes
+# Japaú's Handbook
 ★ || A handbook that contains all prescriptions for each rank. Community Server's Membership required. || ★
 
 **Who is the developer?**
